@@ -1,2 +1,1 @@
-# hello_mundo.
-andava suponiendo y entendiendo esta nueva aplicacion para  mi que me parece de lo mejor y lo mas padre es que aprendo hahaha ua
+nose que estava pensando cuando no conocia esta peculiaridad de web no se que pasaba por mi cabeza cuando decidi hacer esto, si... estooooo, porque mas bien esto nunca lo pensee, estava haciendo que tu pensaras no yo.
